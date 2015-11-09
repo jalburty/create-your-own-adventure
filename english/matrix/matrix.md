@@ -16,6 +16,7 @@ At this point, you're in a state of confusion,
 You wonder how you're ever going to get out, 
 and as you look at the ceiling, you notice yourself 
 start levitating ever so slowly.
+(It's going to be alright.)
 Before the marshmallow realizes, 
 you've blown a hole through its 
 belly and see the outside world.
